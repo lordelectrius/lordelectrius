@@ -2,4 +2,4 @@
 - 👀 I’m interested in cheese
 - 🌱 I’m currently learning how to not be an absolute dum dum and actually learn to code
 - 💞️ I’m looking to collaborate on being not dumb together
-- 📫 How to reach me send me a parcel of cheese in the mail
+- 📫 How to reach me: send me a parcel of cheese in the mail
